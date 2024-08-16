@@ -1,0 +1,12 @@
+- Olá, me chamo kaua
+- sou estudante do leonardo vila boas
+- eu tenho 15 anos e vou fazer 16
+- sou do 1D
+- sou de osasco
+- estou usando a plataforma chamada alura
+- na minha horas vaga gosto de mexer no celular
+-  meu sonho esser influenciador digital
+-  contato: 00001096175058sp@al.educacao.sp.gov.br
+-  espero voltar de alguma forma possivel, falou
+-  ![](![nsei](https://github.com/user-attachments/assets/47bd2e3a-88d1-4d6b-8df1-f20f84c49e36)
+)
