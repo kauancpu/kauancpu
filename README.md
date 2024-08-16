@@ -8,5 +8,5 @@
 -  meu sonho esser influenciador digital
 -  contato: 00001096175058sp@al.educacao.sp.gov.br
 -  espero voltar de alguma forma possivel, falou
--  ![](![nsei](https://github.com/user-attachments/assets/294caf80-7156-44c7-8e14-804b0e415c8a)
+-  ![](![206023_0](https://github.com/user-attachments/assets/47bdc094-0fd7-486f-b09f-45bc379a1f89)
 )
