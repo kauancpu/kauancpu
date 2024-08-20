@@ -1,4 +1,4 @@
-- Olá, me chamo kaua
+![arrogante](https://github.com/user-attachments/assets/63613a9a-6942-4d66-b976-f0479227e251)- Olá, me chamo kaua
 - sou estudante do leonardo vila boas
 - eu tenho 15 anos e vou fazer 16
 - sou do 1D
@@ -11,5 +11,4 @@
 -  ![](![206023_0](https://github.com/user-attachments/assets/47bdc094-0fd7-486f-b09f-45bc379a1f89
 -  )
 
--  ![arrogante](https://github.com/user-attachments/assets/a9c3299a-5c17-4149-825b-561b4e89b327
--  )
+-  ![](![arrogante](https://github.com/user-attachments/assets/2d01c378-7014-483e-b18c-162757b39ed8)
